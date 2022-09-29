@@ -1,0 +1,2 @@
+# Usama_Qureshi
+Hello, I'm Usama Qureshi.I'm a Front End Web Developer. I'm a Creative, Highly motivated and skilled Front End Developer with a good knowledge of various Programming Languages and Web Designing. My Programming Knowledge is enhanced by constant researches and professional development. I have Ability to work well under stress and with short deadlines. I Love Challenges and Enjoy being a part of productive team and equally comfortable working on own initiative.
